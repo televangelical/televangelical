@@ -2,20 +2,20 @@
 
 [daily clicks :watermelon:](https://arab.org/click-to-help/palestine/)
 
-![](https://komarev.com/ghpvc/?username=sacredlustre&color=1166e4&base=10&style=plastic&label=✈︎)
+![](https://komarev.com/ghpvc/?username=theshootist&color=6b4506&base=4069&style=plastic&label=𐚁)
 
-![](https://file.garden/aNlC8bn6tHaGaN__/image%20(42)%20(1)%20(1)%20(1).png)
+![](https://64.media.tumblr.com/c2f34775216159eb5c9ea0ac5363093e/3c74d06b377fdc9b-f8/s500x750/a5a089864e338f265d3159fccb896853d0ea6be7.gifv)
 
-![](https://file.garden/aNlC8bn6tHaGaN__/m2-res_1080p-ezgif.com-optimize%20(1).gif)
+![](https://64.media.tumblr.com/7f5e054195f2ac9168c2260e60f22f39/d01d2cba902f3b79-bd/s540x810/6b384dd2643308dbb6dac60042a6603fe86217a8.gifv)
 
-![](https://file.garden/aNlC8bn6tHaGaN__/image%20(42)%20(1)%20(1)%20(1).png)
+![](https://64.media.tumblr.com/c2f34775216159eb5c9ea0ac5363093e/3c74d06b377fdc9b-f8/s500x750/a5a089864e338f265d3159fccb896853d0ea6be7.gifv)
 
-![](https://file.garden/aNlC8bn6tHaGaN__/ezgif.com-crop%20(19).gif) ![](https://file.garden/aNlC8bn6tHaGaN__/ezgif.com-crop%20(23).gif) ![](https://file.garden/aNlC8bn6tHaGaN__/ezgif.com-crop%20(18).gif) ![](https://file.garden/aNlC8bn6tHaGaN__/ezgif.com-crop%20(22).gif) ![](https://file.garden/aNlC8bn6tHaGaN__/ezgif.com-crop%20(20).gif)
+![](https://file.garden/aNlC8bn6tHaGaN__/marston%202) ![](https://file.garden/aNlC8bn6tHaGaN__/wesker) ![](https://file.garden/aNlC8bn6tHaGaN__/marston%201) ![](https://file.garden/aNlC8bn6tHaGaN__/danny) ![](https://file.garden/aNlC8bn6tHaGaN__/marston%203)
 
-![](https://file.garden/aNlC8bn6tHaGaN__/shime19%20(2)%20(2).png) [rentry](https://rentry.co/gt-r) ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏![](https://file.garden/aNlC8bn6tHaGaN__/shime37%20(1)%20(1).png) [atabook](https://instrumentality.atabook.org/)
+![](https://file.garden/aNlC8bn6tHaGaN__/wolp2) [rentry](https://rentry.co/gt-r) ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏ ͏͏͏![](https://file.garden/aNlC8bn6tHaGaN__/wolp) [atabook](https://instrumentality.atabook.org/)
 
-stamps by me
+rdr stamps by [@irldenji](https://www.tumblr.com/irldenji/780741681779802112/could-i-suggest-some-red-dead-redemption-stuff?source=share) & [@alexxiun](https://www.tumblr.com/alexxiun/760632512927121408/miscellaneous-stamps?source=share)
 
 atabook signs appreciated!! c+h always welcome
 
-basic dni, -16, proshit, vivzie defenders and r slur users You'll be executed NOW
+basic dni, -16, proshit, vivzie defenders and r slur users You'll be vaporized Tomorrow
